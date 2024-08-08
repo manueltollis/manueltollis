@@ -1,6 +1,7 @@
 ### Hello there 👋
 
-![image](https://github.com/user-attachments/assets/281e1f46-bb6e-466d-ace5-3d8cd8ab0788)
+![star-wars-obi-wan-kenobi](https://github.com/user-attachments/assets/e9044be1-4d3d-4eb3-b225-17702ec86344)
+
 
 
 <!--
